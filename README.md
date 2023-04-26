@@ -4,3 +4,7 @@
 - [Link](https://hkulkarni379.wixsite.com/kulkarni-saw-mill)
 ## Blog ON Fortune
 - [Link](https://gpscking.wixsite.com/fortune-soft)
+## Blog ON Fortune
+- [Link](https://abishekmm2.wixsite.com/foodblogger)
+- ## Blog ON Fortune
+- [Link](https://chandrakantsm.wixsite.com/my-site)
